@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao meu perfil ![image](https://github.com/user-attachments/assets/e531fa68-4240-40b5-9359-0e8871b1b0a2)
+## Bem-vindo(a) ao meu perfil !
 
 
  <div>
